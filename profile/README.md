@@ -7,9 +7,10 @@
 
 Loo La La Toiletique is a luxury botique toilet and toiletware organisation. Our headquarters is located in Istanbul, Türkiye. We run our services in Europe, North America and Australia and have hubs in all major cities in said regions, with more coming soon.
 
-## Our Mission
+## Our Company
 
-We do not call toilets, simply toilets. We call them "sanctuaries". Each sanctuary is carefully designed and decorated to provide an elevated experience in a wide range of styles.
+All of our members are expected to be up-to-date on all of the latest bathroom connoisseurship; hygiene etiquette, toilet applications etc. We do not call toilets, simply toilets. We call them "sanctuaries". Each sanctuary is carefully designed and decorated to provide an elevated experience in a wide range of styles.
+
 
 Our toiletware is sourced from the best manufacturers in the world. Some of our products are produced in-house; meaning they cannot be found anywhere else. We also provide a wide range of toiletware for purchase in our hubs. Our website will be launching soon, and will allow you to browse our products online.
 
