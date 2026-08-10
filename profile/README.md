@@ -9,7 +9,7 @@
 
 ---
 
-> "We, at Loo La La Toiletique, understand the utmost importance of a premium experience from start to finish, and aim to elevate your daily experience by providing chiseled luxury sanctuaries and a vast selection of handy useful toiletware for your use."
+> "_We, at Loo La La Toiletique, understand the utmost importance of a premium experience from start to finish, and aim to elevate your daily experience by providing chiseled luxury sanctuaries and a vast selection of handy useful toiletware for your use._"
 
 > MetroKitten, CEO of Loo La La
 
