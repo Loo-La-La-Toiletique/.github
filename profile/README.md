@@ -63,7 +63,7 @@ Upon acceptance into the Plush Flush Club, members handpick their bespoke onboar
 2. **Dermal Care ("Truly" Collection):** Choice of luxury *Butt Butter* (post-bath application), *Tightening Butt Serum*, or *Hydrating Lotion*.
 3. **Fresh Peaches Cleansing Drops:** Scented, soothing paper-enhancement drops that transform standard toilet paper into an eco-friendly wet wipe alternative.
 4. **Odor Management:** Choice between **Poo-Purri** pre-poo barrier sprays (Pumpkin-Chai, Lavender Vanilla, Berry Burst, Tri-Woods, Ocean Breeze) or **Wabi Wafts** (aromatic sizzling toilet bath bombs).
-5. **Textiles & Matting:** Custom hand towel in a signature fold (Egyptian Cashmere Cotton or Mulberry Silk Blend) plus an XL Plush Absorbent Bath Mat.
+5. **Textiles & Matting:** Custom hand towel in a signature fold (any material you choose!) plus an XL Plush Absorbent Bath Mat.
 
 ---
 
