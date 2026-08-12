@@ -76,5 +76,5 @@ Plush Flush Kulübüne kabul edildikten sonra, üyeler beş farklı kategoride k
 * **Para Birimi (Loo Points):** Üyeler, günlük giriş yaparak, mabet ziyaretleri gerçekleştirerek, detaylı yorumlar yazarak ve yeni üyeler tavsiye ederek **Loo Points** (veya *Plush Points*) kazanırlar. Puanlar, ekstra misafir geçiş kartları ve sınırlı süreli etkinlikler için kullanılabilir.
 
 <p align="center">
-  <em>© Loo La La Toiletique Inc. Tüm Hakları Saklıdır. Temizlik Bir Sanattır..</em>
+  <em>© Loo La La Toiletique Inc. Tüm Hakları Saklıdır. Temizlik Bir Sanattır.</em>
 </p>
