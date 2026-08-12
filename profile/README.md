@@ -9,7 +9,7 @@
 
 > [!IMPORTANT]
 >
-> 🇹🇷 Bu yazının Türkçe versiyonu için lütfen [bu dosyaya](README_tr.md) bakınız.
+> 🇹🇷 Yazının Türkçe versiyonu için lütfen [bu dosyaya](README_tr.md) bakınız.
 
 ---
 
