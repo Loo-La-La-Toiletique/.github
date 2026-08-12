@@ -49,7 +49,7 @@ Every Sanctuary is chiseled with distinct themes, functionalities, and environme
 * **🌿 Botanical Oasis:** Living vertical moss walls, rainfall acoustics, warm cedar accents, and automated ambient mists.
 * **⚜️ Gothic Royalty:** Obsidian porcelain, velvet acoustic insulation, brass candle sconces, and 24k gold-leaf paper dispensers.
 * **⚡ Cyber-Bidet 2077:** Full chrome finishings, HUD smart mirrors, motion-activated lids, and dynamic water-pressure tuning.
-* **🕌 Byzantine Imperial:** Chiseled Turkish marble, gold filigree trim, and dome ceiling motifs honoring our Istanbul roots.
+* **🕌 Ottoman Throne:** Chiseled Turkish marble, gold filigree trim, and dome ceiling motifs honoring our Istanbul roots.
 
 ...with more to come. Stay tuned!
 
